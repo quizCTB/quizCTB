@@ -1,4 +1,1 @@
-- <👋 Hi, I’m CTB>
-- <🛠️ PROGRAMMING> ??  , ?? , ??  , ??  , ??  , ??  ,??. 
 
-[SERVER DISCORD](https://discord.gg/zSbrRvNH)
